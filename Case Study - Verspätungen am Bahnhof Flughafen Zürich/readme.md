@@ -1,1 +1,1 @@
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.reisen-experten.de%2Freiseinformationen%2Fflughafeninfos%2Fflughafen-zurich%2Fanreise-307%2F&psig=AOvVaw3-rzMeyXCqEmqbUb9Bsr3q&ust=1710580111063000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCMiP39T19YQDFQAAAAAdAAAAABAD![image](https://github.com/yannluethi/BINA/assets/12064962/d62fddc3-c726-4dc7-bd98-4bf9f1180c8f)
+http://www.reisen-experten.de/wp-content/uploads/2017/01/Flughafen-Zürich-Bahnhof.jpg![image](https://github.com/yannluethi/BINA/assets/12064962/0c2e935c-1437-4757-a3cb-c14b978e93a9)
